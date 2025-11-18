@@ -1,4 +1,4 @@
-# Chapter 16: The Relapse
+# Chapter 17: The Relapse
 
 ## Chapter Summary
 Something happens—maybe a particularly bad day, a moment of overwhelming emptiness, a trigger, financial stress returning, or just the accumulated weight of fighting the craving every moment. Simera relapses. The exact reason might be ambiguous, showing that addiction doesn't always need a dramatic reason. She tells herself it's just once, just to take the edge off, she can control it this time. The rationalization comes easily, horribly familiar. She does a recording—maybe not as extreme as before, or maybe immediately jumping back to the intensity. The rush is overwhelming, the relief immense. She feels alive again. Real again. And immediately after, the crushing weight of having broken her promise to Liz, to herself. The knowledge that she chose this. That she will have to hide it or confess. The addiction has won again. She knows she should tell Liz, but she doesn't. The cycle begins again, but now with the added weight of having broken a solemn promise.

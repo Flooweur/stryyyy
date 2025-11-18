@@ -1,4 +1,4 @@
-# Chapter 12: The Descent
+# Chapter 13: The Descent
 
 ## Chapter Summary
 Simera does it again. And again. The pattern establishes itself. She creates recordings in secret, lying to Liz regularly now. Each time telling herself it's the last time. The lies become easier. The recordings become more frequent, more extreme. She's chasing that intensity, that aliveness, but it takes more each time to achieve the same feeling. Her OCD might worsen. Reality starts to feel less solid—memories blurring. She consumes Mementos too, seeking that high, but even her old favorites (falling, Asian women, sexual content) feel muted unless they're extreme. Her relationship with Liz suffers—she's present physically but increasingly absent emotionally. Liz doesn't know about the secret recordings but senses something is deeply wrong. Simera is numbing, fragmenting, slipping away. The addiction is fully established now.

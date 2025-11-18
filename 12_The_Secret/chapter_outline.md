@@ -1,4 +1,4 @@
-# Chapter 11: The Secret
+# Chapter 12: The Secret
 
 ## Chapter Summary
 Simera gives in. She does another recording in secret—telling Liz she's going out for a mundane reason, or doing it when Liz isn't home. The planning feels illicit, thrilling. She tells herself it's just once more, just to get it out of her system. The recording itself is intense, dangerous—she seeks that same rush. And she finds it. The feeling of being fully alive, every nerve ending awake. Afterward, the high is powerful but followed by guilt and shame. She hides the evidence, lies to Liz about where she was or what she did. The deception is a new weight. But underneath the guilt is satisfaction, relief, a sense of having scratched an itch. Simera is now actively hiding part of her life from Liz. The secret creates a new distance between them.

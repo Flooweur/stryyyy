@@ -1,4 +1,4 @@
-# Chapter 17: Breaking Point
+# Chapter 18: Breaking Point
 
 ## Chapter Summary
 Liz discovers the relapse. Maybe she finds evidence, or Simera comes home injured, or she catches Simera in the act, or Simera confesses. The promise was clear: if this happened again, Liz would leave. And she does. Not in anger this time, but in devastating sorrow and acceptance. She loves Simera, but she can't watch her destroy herself anymore. She can't keep being betrayed. She's given everything she has, and it's not enough. Liz leaves. The relationship ends. Simera is alone with the consequences of her choices. She may have a moment of terrible clarity—seeing what she's lost, what she's chosen instead. Or she may be too fragmented to fully process it. Either way, the breaking point is Liz leaving. The anchor is gone. Simera has nothing left but the addiction. The devastation is complete.

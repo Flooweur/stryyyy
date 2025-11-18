@@ -1,4 +1,4 @@
-# Chapter 13: The Discovery
+# Chapter 14: The Discovery
 
 ## Chapter Summary
 Liz discovers the truth. Maybe she finds evidence of the recordings, or notices money appearing, or catches Simera in a lie, or Simera comes home with visible signs of a dangerous recording. The confrontation is explosive. Liz's anger, betrayal, fear—all the worry crystallizing into fury. She's been lied to for weeks or months. Simera has been putting herself in danger repeatedly. Breaking their agreement, breaking trust, hiding a whole part of her life. Simera tries to defend herself—rationalizations, justifications, minimizations. But the lies are exposed. The fight is raw and devastating. Liz's pain at the deception. Simera's shame and defensive anger. Everything they've been not saying erupts. The relationship feels like it might shatter completely. This is the crisis point where everything comes out into the open.

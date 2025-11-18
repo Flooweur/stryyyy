@@ -1,4 +1,4 @@
-# Chapter 15: The Damage Done
+# Chapter 16: The Damage Done
 
 ## Chapter Summary
 Simera is trying to stay clean, keeping her promise. But the damage is already deep. She's more fragmented than she realized. Her memories are unstable—she has trouble distinguishing what's real, what was a Memento she created, what was one she consumed. Her OCD is worse. Reality feels thin, unreliable. She has moments where she doesn't recognize where she is, even though it's her own apartment. She looks at Liz and has to remind herself who she is. The cravings are constant, gnawing. Normal life feels unbearably empty. She's trying—genuinely trying—but she's realizing how far gone she already is. The psychological damage from months of recording and consuming is profound. She's more broken than either she or Liz understood. She's white-knuckling sobriety, but every moment feels like withdrawal. The fragmentation of self is already advanced.

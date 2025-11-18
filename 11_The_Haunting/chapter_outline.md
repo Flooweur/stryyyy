@@ -1,4 +1,4 @@
-# Chapter 10: The Haunting
+# Chapter 11: The Haunting
 
 ## Chapter Summary
 Days after the fight with Liz, Simera can't stop thinking about that last recording. The intensity of it. How alive she felt. How every sensation was amplified. The danger made it more real than anything she'd experienced in months. She tries to go back to normal life, but everything feels muted in comparison. Mundane moments with Liz feel hollow. She keeps replaying the memory of the recording in her mind—not the content itself, but the feeling of creating it. The rush. The aliveness. She tells herself it was just adrenaline, just the circumstances, just the fear. But she knows something shifted. She felt something she hadn't felt in a long time, maybe ever. And now normal life feels like waiting. This chapter is internal, psychological—Simera wrestling with this new hunger she doesn't want to acknowledge. She hasn't created again (yet), but the wanting is there, growing.
