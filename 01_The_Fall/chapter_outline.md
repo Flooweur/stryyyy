@@ -39,37 +39,10 @@ Prize-worthy opening. Devastatingly beautiful. Disorienting. Sensual without bei
 ## Your Notes & Ideas
 
 ### Initial Thoughts
-*[Add your initial feelings and ideas about this chapter]*
-
+The idea is good, i want to state again how important it will be that the metaphor is beautiful, it should make the reader feel something almost sexual. Simera could see the city as a living being, use smart metaphors for that. I'm thinking she could be counting the stories of the building as she falls, gradually as the chapter progresses, which would be great to bring tension to the reader.
 
 ### Key Scenes You Want to Include
-*[List specific scenes or moments you envision]*
-
-
-### Dialogue/Character Moments
-*[Any specific dialogue or character beats you want to remember]*
-
-
-### Sensory Details to Emphasize
-*[What sensations, images, sounds should dominate this chapter?]*
-
+when she is about to touch the ground, she sees her reflection on a puddle of water on the ground, the chapter ends when she is about to kiss her own reflection, but she doesn't recognize the face she sees in the reflection (because it's not hers, it's the memento creator's face)
 
 ### Emotional Impact Goals
-*[What should the reader feel? How should they feel it?]*
-
-
-### Questions/Concerns
-*[Any uncertainties or things you need to work out?]*
-
-
-### Inspiration/References
-*[Any specific inspirations, images, music, etc. that inform this chapter]*
-
-
-### Revision Notes
-*[After writing, what worked? What needs adjustment?]*
-
-
----
-
-**Status**: ⬜ Not Started | ⬜ In Progress | ⬜ First Draft Complete | ⬜ Revised | ⬜ Final
+This chapter should make the reader feel like mementos do really feel good, they should also feel tense because they think Simera will die when reaching the ground
