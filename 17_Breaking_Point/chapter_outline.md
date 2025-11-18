@@ -1,38 +1,51 @@
 # Chapter 17: Breaking Point
 
 ## Chapter Summary
-The crisis. Something happens that forces confrontation with reality. Maybe Simera gets physically hurt during a recording and the real consequences break through her dissociation. Maybe Liz reaches her breaking point. Maybe Simera has a moment of clarity about what she's become. Or maybe she does something while dissociated that she discovers afterward. The moment where something breaks—the pattern, the relationship, the self, or all of the above. The horror fully conscious now. The recognition of loss.
+Liz discovers the relapse. Maybe she finds evidence, or Simera comes home injured, or she catches Simera in the act, or Simera confesses. The promise was clear: if this happened again, Liz would leave. And she does. Not in anger this time, but in devastating sorrow and acceptance. She loves Simera, but she can't watch her destroy herself anymore. She can't keep being betrayed. She's given everything she has, and it's not enough. Liz leaves. The relationship ends. Simera is alone with the consequences of her choices. She may have a moment of terrible clarity—seeing what she's lost, what she's chosen instead. Or she may be too fragmented to fully process it. Either way, the breaking point is Liz leaving. The anchor is gone. Simera has nothing left but the addiction. The devastation is complete.
 
 ## Key Story Beats
-- [ ] Crisis event or moment
-- [ ] Breaking through dissociation
-- [ ] Moment of terrible clarity
-- [ ] Recognition of what's been lost
-- [ ] Liz's breaking point or Simera's
-- [ ] Confrontation with reality
-- [ ] The cost made visible
-- [ ] Something irreversible happening
+- [ ] Liz discovering the relapse
+- [ ] The evidence undeniable
+- [ ] Remembering the promise: "If this happens again, I'm leaving"
+- [ ] Liz's decision—not angry, but final
+- [ ] The sorrow and acceptance in her choice
+- [ ] Liz packing or leaving
+- [ ] Final conversation or none
+- [ ] Simera's realization of what's happening
+- [ ] Attempts to stop her or silent acceptance
+- [ ] Liz walking away
+- [ ] Simera alone
+- [ ] The full weight of loss
+- [ ] Moment of clarity or continued fragmentation
+- [ ] The ending of their relationship
+- [ ] Simera with nothing left but the addiction
 
 ## Character Focus
-- **Simera**: Moment of clarity, horror at self-recognition, or further breaking
-- **Liz**: Limit reached, choice made, love confronting impossibility
+- **Simera**: Losing everything, facing the consequences, clarity or dissociation, alone
+- **Liz**: Reaching her limit, choosing herself, devastated but resolved, love not enough
 
 ## Themes to Explore
-- The moment of recognition
-- What cannot be undone
 - The limits of love
-- Waking up to find yourself gone
-- The cost suddenly visible
+- Consequences of choices
+- What cannot be undone
+- Loving someone you can't save
+- The finality of some choices
+- Loss as inevitable
+- Addiction consuming everything
 
 ## Atmosphere & Tone
-Crisis, intensity, clarity that's more terrible than confusion. The breaking point. Whatever happens here changes everything. Devastating.
+Devastating, final, heartbreaking. The sorrow should be overwhelming. The reader should feel the relationship ending like a death. Quiet and terrible. The breaking point not violent but absolute.
 
 ## Writing Notes
-- The crisis should feel earned and inevitable
-- The emotional impact should be maximum
-- Whether this is Simera's clarity or Liz's departure or both—make it hurt
-- The reader should feel the break
-- Don't rush this—let it devastate fully
+- Liz's departure should be final and devastating
+- Not angry but sorrowful and resolved
+- Show the love still present but insufficient
+- Simera's response—clarity or numbness
+- The emptiness after Liz leaves
+- This should devastate the reader completely
+- The breaking point is loss, not violence
+- Everything Simera chose the addiction over is now gone
+- Elements from old Chapter 12 (Liz's Pain) about her perspective could inform her choice
 
 ---
 

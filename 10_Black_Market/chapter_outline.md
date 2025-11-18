@@ -1,40 +1,46 @@
-# Chapter 10: Black Market
+# Chapter 10: The Haunting
 
 ## Chapter Summary
-Simera discovers or is approached about the black market for illegal Mementos. Content that Heri won't accept: murder simulations, extreme violence, snuff elements, hardcore drugs. The payments are astronomical. The danger is real. She learns about creators who use dissociatives before recording to make the experience feel more genuine (since consumers can feel if the creator knows they're recording). The underworld of Memento creation. Temptation despite—or because of—the danger. The machinery of exploitation revealed. Simera standing at another threshold.
+Days after the fight with Liz, Simera can't stop thinking about that last recording. The intensity of it. How alive she felt. How every sensation was amplified. The danger made it more real than anything she'd experienced in months. She tries to go back to normal life, but everything feels muted in comparison. Mundane moments with Liz feel hollow. She keeps replaying the memory of the recording in her mind—not the content itself, but the feeling of creating it. The rush. The aliveness. She tells herself it was just adrenaline, just the circumstances, just the fear. But she knows something shifted. She felt something she hadn't felt in a long time, maybe ever. And now normal life feels like waiting. This chapter is internal, psychological—Simera wrestling with this new hunger she doesn't want to acknowledge. She hasn't created again (yet), but the wanting is there, growing.
 
 ## Key Story Beats
-- [ ] Introduction to black market Mementos
-- [ ] Learning what's traded there
-- [ ] The economics - huge payments for illegal content
-- [ ] Meeting black market contacts or creators
-- [ ] Discussion of dissociatives and extreme methods
-- [ ] The real dangers involved
-- [ ] Temptation despite risk
-- [ ] World-building: the underground economy
-- [ ] Simera considering involvement
-- [ ] The system that feeds on desperation
+- [ ] Simera trying to return to normal life
+- [ ] Everything feeling muted, colorless
+- [ ] Obsessive thoughts about the last recording
+- [ ] Replaying the feelings, the intensity
+- [ ] Mundane moments feeling empty
+- [ ] Interactions with Liz feeling distant
+- [ ] Simera trying to rationalize what she's feeling
+- [ ] The hunger/craving starting to form
+- [ ] Denial and recognition warring
+- [ ] The realization that she wants to do it again
+- [ ] Fear of this wanting
+- [ ] End with Simera lying awake, thinking about it
 
 ## Character Focus
-- **Simera**: Drawn deeper, rationalizing, curiosity about extremes
-- **Liz**: May not know yet, or discovering and horrified
+- **Simera**: Internal conflict, the addiction beginning, denial, self-awareness and self-deception
+- **Liz**: Present but distant, their relationship strained, unaware of Simera's obsessive thoughts
 
 ## Themes to Explore
-- The exploitation economy
-- How far desperation can push someone
-- The normalization of extreme content
-- Systems that profit from human suffering
-- The illusion of agency in economic coercion
+- The seduction of intensity
+- How exceptional experiences make normal life feel inadequate
+- The beginning of addiction
+- Self-awareness without self-control
+- The hunger for feeling alive
+- How we rationalize cravings
 
 ## Atmosphere & Tone
-Sinister, seductive danger. The underworld revealed. A sense of descending deeper into darkness. Grim inevitability.
+Claustrophobic, obsessive, creeping hunger. Internal and psychological. The tension of wanting something you know is destructive. The horror of recognizing yourself becoming addicted. Restless, unsettled.
 
 ## Writing Notes
-- World-building: show the black market ecosystem
-- Make the danger real but the temptation understandable
-- The dissociatives detail adds horror - recording while not fully aware
-- Parallel to real exploitation industries
-- End with Simera making or about to make a dark choice
+- This is primarily an internal chapter
+- Show Simera's obsession through her thoughts returning to it constantly
+- Make the craving psychological not just physical
+- Show how normal life has lost color/meaning in comparison
+- Liz should be present but Simera is increasingly absent
+- The reader should feel Simera's growing compulsion
+- End with the inevitability that she'll do it again
+- This is where the addiction really starts
 
 ---
 

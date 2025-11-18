@@ -2,52 +2,60 @@
 
 ## High-Level Narrative Arc
 
-This story follows Simera's descent from consumer to creator of Mementos—recorded experiences sold by the Heri corporation. It's a tragedy of exploitation, identity dissolution, and the cost of commodifying human experience.
+This story follows Simera's descent from consumer to creator of Mementos—recorded experiences sold by the Heri corporation. It's a tragedy of addiction, love, betrayal, and the dissolution of self. The story focuses on Simera's relationship with Liz as she falls deeper into addiction to creating Mementos.
 
 ---
 
 ## Three-Act Structure
 
-### **ACT I: The World and the Wound** (Chapters 1-7)
-**Setup and Escalation into Creation**
+### **ACT I: The Seduction** (Chapters 1-7)
+**Setup and Initial Success**
 
-- **Ch 1-2**: Opening with the fall Memento (in medias res), then establishing Simera and Liz's world
-- **Ch 3-5**: Economic desperation, exposure to creator culture, decision to create
-- **Ch 6-7**: First recordings and initial success—the seduction of easy money
+- **Ch 1**: The fall Memento (in medias res)
+- **Ch 2**: Awakening—coming back to reality
+- **Ch 3**: Scraping by—economic desperation
+- **Ch 4**: The Creators—learning about the creator world
+- **Ch 5**: Temptation—deciding to create
+- **Ch 6**: First Recording—crossing the threshold
+- **Ch 7**: Easy Money—initial success and relief
 
-### **ACT II: The Descent** (Chapters 8-15)
-**Transformation and Loss**
+### **ACT II: The Addiction Cycle** (Chapters 8-14)
+**Promises, Betrayals, and Escalation**
 
-- **Ch 8-9**: Growing emotional numbness, crossing moral boundaries
-- **Ch 10**: Introduction to the black market
-- **Ch 11-12**: Deep numbness contrasted with Liz's perspective and pain
-- **Ch 13-15**: Reality begins to blur, ambiguity sets in, escalation into extreme content
+- **Ch 8**: The Decision—talks with Liz, mutual decision to stop
+- **Ch 9**: Breaking the Promise—Liz's pain, Simera's dangerous recording, fight
+- **Ch 10**: The Haunting—can't stop thinking about the intense creation
+- **Ch 11**: The Secret—does another recording in secret
+- **Ch 12**: The Descent—pattern of addiction established, gets worse
+- **Ch 13**: The Discovery—Liz discovers the lies, devastating fight
+- **Ch 14**: Reconciliation—gets better, Simera promises to stop completely
 
-### **ACT III: Dissolution** (Chapters 16-20)
-**Breaking Point and Resolution**
+### **ACT III: The Dissolution** (Chapters 15-18)
+**Final Descent and Loss**
 
-- **Ch 16-17**: Complete disconnect from reality, crisis/breaking point
-- **Ch 18**: Fragmentation—the self scattered
-- **Ch 19**: Moment of terrible clarity and choice
-- **Ch 20**: The ending—dissolution complete or attempted redemption (to be determined by your vision)
+- **Ch 15**: The Damage Done—already in a bad spot despite sobriety
+- **Ch 16**: The Relapse—for uncertain reasons, she does it again
+- **Ch 17**: Breaking Point—Liz discovers and leaves
+- **Ch 18**: Dissolution—the self scattered, the ending
 
 ---
 
 ## Key Narrative Threads
 
-1. **Economic Desperation → Exploitation**: The pipeline from poverty to self-destruction
-2. **Simera & Liz's Relationship**: Love confronting loss, presence vs. absence
-3. **Reality Blur**: Progressive loss of ability to distinguish real from recorded
-4. **Identity Dissolution**: The self as a commodity that can be sold piece by piece
-5. **Systemic Critique**: Parallels to social media, pornography industry, late capitalism
+1. **Addiction and Escalation**: The progression from first use to complete dependence
+2. **Simera & Liz's Relationship**: Love confronting addiction, promises made and broken
+3. **Promises and Betrayals**: The cycle of commitment, relapse, and deception
+4. **Reality Fragmentation**: Progressive loss of ability to distinguish real from recorded
+5. **Identity Dissolution**: The self as a commodity that can be sold piece by piece
+6. **The Limits of Love**: How far love can reach, when it's not enough to save someone
 
 ---
 
 ## Thematic Resonance
 
 - **Opening (Ch 1)**: The fall as freedom, escape, sensory intensity
-- **Middle (Ch 13-14)**: The fall as disorientation, loss of ground
-- **Ending (Ch 20)**: The fall as ??? (your choice—final dissolution, acceptance, grace, ambiguity)
+- **Middle (Ch 8-14)**: The cycle of promise and betrayal, love confronting addiction
+- **Ending (Ch 18)**: The fall as dissolution—the self scattered, the price of intensity revealed
 
 ---
 
@@ -55,12 +63,13 @@ This story follows Simera's descent from consumer to creator of Mementos—recor
 
 ### Simera
 - **Beginning**: Struggling, seeking escape, sensitive to details (OCD), seeking intensity
-- **Middle**: Numbing, detaching, losing connection to sensation and reality
-- **End**: Dissolved/fragmented/choosing ??? (depends on your vision)
+- **Middle**: Addicted, lying, promising and breaking promises, fragmenting
+- **End**: Dissolved/fragmented, alone, the self scattered beyond recovery
 
 ### Liz
-- **Constant**: Absurdist philosophy, chronic pain, wit, love for Simera, principled refusal of Mementos
-- **Arc**: From supportive partner → concerned observer → witness to dissolution → ??? (her choice about staying/leaving)
+- **Constant**: Absurdist philosophy, chronic pain, wit, love for Simera, principled
+- **Arc**: From supportive partner → setting boundaries → being betrayed → fighting for the relationship → reaching her limit → choosing to leave
+- **Key moments**: Ch 8 (deciding to stop together), Ch 9 (first betrayal), Ch 13 (discovery of lies), Ch 14 (reconciliation and clear boundary), Ch 17 (leaving)
 
 ---
 
