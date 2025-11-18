@@ -19,24 +19,25 @@ This story follows Simera's descent from consumer to creator of Mementos—recor
 - **Ch 6**: First Recording—crossing the threshold
 - **Ch 7**: Easy Money—initial success and relief
 
-### **ACT II: The Addiction Cycle** (Chapters 8-14)
+### **ACT II: The Addiction Cycle** (Chapters 8-15)
 **Promises, Betrayals, and Escalation**
 
 - **Ch 8**: The Decision—talks with Liz, mutual decision to stop
-- **Ch 9**: Breaking the Promise—Liz's pain, Simera's dangerous recording, fight
-- **Ch 10**: The Haunting—can't stop thinking about the intense creation
-- **Ch 11**: The Secret—does another recording in secret
-- **Ch 12**: The Descent—pattern of addiction established, gets worse
-- **Ch 13**: The Discovery—Liz discovers the lies, devastating fight
-- **Ch 14**: Reconciliation—gets better, Simera promises to stop completely
+- **Ch 9**: Searching for Hope—Liz's pain, Simera desperately trying to find money legitimately, all attempts failing
+- **Ch 10**: Crossing Lines—Simera's dangerous recording (full session, tense and visceral), fight with Liz
+- **Ch 11**: The Haunting—can't stop thinking about the intense creation
+- **Ch 12**: The Secret—does another recording in secret
+- **Ch 13**: The Descent—pattern of addiction established, gets worse
+- **Ch 14**: The Discovery—Liz discovers the lies, devastating fight
+- **Ch 15**: Reconciliation—gets better, Simera promises to stop completely, sex scene revealing Simera's numbness
 
-### **ACT III: The Dissolution** (Chapters 15-18)
+### **ACT III: The Dissolution** (Chapters 16-19)
 **Final Descent and Loss**
 
-- **Ch 15**: The Damage Done—already in a bad spot despite sobriety
-- **Ch 16**: The Relapse—for uncertain reasons, she does it again
-- **Ch 17**: Breaking Point—Liz discovers and leaves
-- **Ch 18**: Dissolution—the self scattered, the ending
+- **Ch 16**: The Damage Done—already in a bad spot despite sobriety
+- **Ch 17**: The Relapse—for uncertain reasons, she does it again
+- **Ch 18**: Breaking Point—Liz discovers and leaves
+- **Ch 19**: Dissolution—the self scattered, the ending
 
 ---
 
@@ -69,7 +70,7 @@ This story follows Simera's descent from consumer to creator of Mementos—recor
 ### Liz
 - **Constant**: Absurdist philosophy, chronic pain, wit, love for Simera, principled
 - **Arc**: From supportive partner → setting boundaries → being betrayed → fighting for the relationship → reaching her limit → choosing to leave
-- **Key moments**: Ch 8 (deciding to stop together), Ch 9 (first betrayal), Ch 13 (discovery of lies), Ch 14 (reconciliation and clear boundary), Ch 17 (leaving)
+- **Key moments**: Ch 8 (deciding to stop together), Ch 9-10 (first betrayal over her pain), Ch 14 (discovery of lies), Ch 15 (reconciliation and clear boundary), Ch 18 (leaving)
 
 ---
 
