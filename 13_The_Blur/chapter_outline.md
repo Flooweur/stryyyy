@@ -1,39 +1,48 @@
-# Chapter 13: The Blur
+# Chapter 13: The Discovery
 
 ## Chapter Summary
-Simera's grip on reality beginning to loosen. She uses Mementos frequently (consuming), creates them regularly, and the line between lived experience and recorded memory starts to blur. Moments where she's unsure if something happened or if she experienced it in a Memento. Confusion about whether she's currently in a Memento or reality. The disorientation growing. Her memories fragmenting. Details from her real life and Memento experiences mixing. The horror of losing the ability to distinguish real from recorded. Liz noticing but Simera dismissing her concerns.
+Liz discovers the truth. Maybe she finds evidence of the recordings, or notices money appearing, or catches Simera in a lie, or Simera comes home with visible signs of a dangerous recording. The confrontation is explosive. Liz's anger, betrayal, fear—all the worry crystallizing into fury. She's been lied to for weeks or months. Simera has been putting herself in danger repeatedly. Breaking their agreement, breaking trust, hiding a whole part of her life. Simera tries to defend herself—rationalizations, justifications, minimizations. But the lies are exposed. The fight is raw and devastating. Liz's pain at the deception. Simera's shame and defensive anger. Everything they've been not saying erupts. The relationship feels like it might shatter completely. This is the crisis point where everything comes out into the open.
 
 ## Key Story Beats
-- [ ] Simera unable to remember if something was real or a Memento
-- [ ] Confusion during a moment - is this real?
-- [ ] Memories overlapping and fragmenting
-- [ ] Details from Mementos intruding into real memories
-- [ ] Disorientation increasing
-- [ ] Liz's concern and Simera's dismissal
-- [ ] The reader sharing Simera's confusion
-- [ ] Reality becoming unreliable
+- [ ] Liz discovering the truth (evidence, money, injury, caught in lie)
+- [ ] The moment of confrontation
+- [ ] Liz's explosion of anger and hurt
+- [ ] All the lies laid bare
+- [ ] Simera's attempts to defend/justify
+- [ ] Liz's betrayal and fear
+- [ ] The depth of the deception revealed
+- [ ] Simera's shame and anger warring
+- [ ] Raw, devastating argument
+- [ ] Everything unspoken now said
+- [ ] The relationship in crisis
+- [ ] Both of them devastated
+- [ ] The question of whether they can survive this
 
 ## Character Focus
-- **Simera**: Disoriented, fragmenting, defensive about it
-- **Liz**: Alarmed, trying to ground Simera, increasingly scared
+- **Simera**: Exposed, defensive, ashamed, trying to justify, realizing the depth of what she's done
+- **Liz**: Betrayed, furious, hurt, scared, her love confronting the enormity of the lies
 
 ## Themes to Explore
-- Loss of reality
-- Identity fragmentation
-- The cost of living in simulation
-- Existential horror
-- The unreliable nature of memory
+- The cost of deception
+- Trust broken
+- Love confronting betrayal
+- Addiction's impact on relationships
+- The inadequacy of justifications
+- Anger as expression of fear and love
 
 ## Atmosphere & Tone
-Disorienting, surreal, creeping horror. The ground falling away. Unreliable narration. The reader should feel Simera's confusion and fear. Vertigo.
+Explosive, raw, painful. The fight should feel real and devastating. Both characters wounded. The reader should feel the relationship tearing. Heartbreaking and tense.
 
 ## Writing Notes
-- Make the confusion real for the reader too
-- Blur the lines deliberately - don't clarify what's real
-- The horror is subtle, creeping, existential
-- Simera's denial should be defensive and scared
-- Details that don't quite match up
-- End with Simera (and reader) genuinely uncertain
+- Make the discovery visceral and undeniable
+- The fight should be brutal but believable
+- Show both characters' pain
+- Liz's anger comes from love and fear
+- Simera's defenses should crumble
+- The betrayal should feel huge
+- This is a potential breaking point
+- End with uncertainty about whether they can recover
+- Elements from old Chapter 9 (Crossing Lines) confrontation can inform this
 
 ---
 
