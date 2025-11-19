@@ -420,6 +420,8 @@ DURATION: 00:53:17
 FILE SIZE: 1.8GB  
 READY TO UPLOAD
 
+(just a thought. after this recording. she could receive a message from someone who cannot walk anymore and says that it really helped them to be able to experience walking through the city)
+
 The screen glows in her hand. The light is blue-white, cold, the color of technology, the color of transactions, the color of turning experiences into data into money into survival into whatever comes next.
 
 She's done it. She's recorded her first Memento. She's crossed the line. She's become a creator.
