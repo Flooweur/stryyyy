@@ -3,7 +3,7 @@
 ## Style & Tone
 - Deeply blend the styles of Fabien Vehlmann, Cormac McCarthy, Victor Hugo, and Antoine de Saint-Exupéry; use their strengths, but do **not** directly imitate or reference them. The story should stand alone as an original work.
 - Write prize-worthy, emotionally devastating fiction.
-- Chapters must be long, immersive, and vividly descriptive—prioritize beauty and depth over speed.
+- Chapters must be immersive, and vividly descriptive—prioritize beauty and depth over speed.
 
 ## Core Concept
 - **Setting:** Dystopian world with the company "Heri," which sells recorded memories ("Mementos"). Users stream them to their brains via a device plugged behind the ear, experiencing memories as if truly living them.
@@ -15,14 +15,14 @@
   - Female protagonist, struggling financially with her girlfriend, Liz.
   - Performs small jobs and begins considering creating Mementos.
   - Subtle OCD: instinctively counts small details (chairs in a room, windows, etc.).
-  - Preferences (show, don’t tell): enjoys Mementos involving falling and sexual encounters with Asian women.
+  - Preferences (show, don’t tell): Simera enjoys Mementos involving falling and sexual encounters specifically Asian women.
   - Increasingly nihilistic worldview as story progresses, demonstrated through actions and choices (not direct exposition).
 
 - **Liz**
-  - Simera’s girlfriend; witty, resourceful, lives with chronic stomach pain (requires strong painkillers occasionally).
+  - Simera’s girlfriend; witty, resourceful, lives with chronic stomach pain (requires strong painkillers occasionally), is pretty humorous when she feels good.
   - Principled: refuses to use Mementos, but does not judge Simera for doing so.
   - Scammer; skilled at rationalizing her actions.
-  - Absurdist philosopher (show this in behaviour/dialogue, not in exposition).
+  - Absurdist (show this in behaviour/dialogue, not in exposition).
   - Her presence anchors Simera, highlights the changing dynamic as Simera loses sensitivity/pleasure in life and their relationship.
 
 ## Key Story Beats & Structure
@@ -42,7 +42,7 @@
   - Emphasize emotional impact: evoke dread, awe, heartbreak, and tears.
 
 ## Misc / Tips
-- Use naturalistic dialogue and transitions; motivations must flow logically from character and circumstance.
+- Use naturalistic dialogue and transitions; priorize dialogues so that the story feels alive; motivations must flow logically from character and circumstance.
 - Avoid on-the-nose explanations; reveal core themes through scene and subtext.
 
 ## Ultimate Goal
