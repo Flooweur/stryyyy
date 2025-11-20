@@ -1,7 +1,7 @@
-# Chapter 15: The Confrontation
+# Chapter 15: Good Resolutions
 
 ## Chapter Summary
-Simera can't watch anymore. Despite her own addiction, despite the hypocrisy, she has to try. She confronts Liz about her Memento use. The conversation is difficult—Simera struggling with her own addiction while trying to help Liz with hers. Liz immediately throws it back: "You use too. You're still using. How can you tell me to stop?" It's true. Simera knows it's true. But she persists—"I can see what it's doing to you. You're worse than I am. You're disappearing." The confrontation is raw, honest, painful. Simera admits her own problem, admits she should stop too, admits she doesn't know if she can. But she's terrified for Liz. Liz breaks down—admits she can't stop, admits she needs it, admits the guilt and pain are still there underneath, waiting whenever she's not using. They cry together. They make promises together—both of them will stop. They'll help each other. They'll quit together. The conversation ends with hope—tentative, fragile hope. They both mean it. They both want it. For a brief moment, it feels like recovery is possible, like love might be enough, like they might save each other. The chapter ends with them holding each other, both promising to stop, both believing it's possible. The reader should feel the hope but dread what's coming—the knowledge that promises made in desperation are hardest to keep.
+Simera can't watch anymore. Despite her own addiction, despite the hypocrisy, she has to try. She confronts Liz about her Memento use. The conversation is difficult—Simera struggling with her own addiction while trying to help Liz with hers. Liz immediately throws it back: "You use too. You're still using. How can you tell me to stop?" It's true. Simera knows it's true. But she persists—"I can see what it's doing to you. You're worse than I am. You're disappearing." The confrontation is raw, honest, painful. Simera admits her own problem, admits she should stop too, admits she doesn't know if she can. But she's terrified for Liz. Liz breaks down—admits she can't stop, admits she needs it, admits the guilt and pain are still there underneath, waiting whenever she's not using. They cry together. They make promises together—both of them will stop. Completely. No more Mementos. They'll find another way to survive. They'll get normal jobs. Real work. They'll help each other. They'll quit together. The decision feels monumental, necessary. They start immediately: both searching for work online, updating resumes, applying to positions. The activity feels productive, hopeful. Within days, Simera gets an interview—customer service, nothing glamorous, but legitimate work. The chapter ends with genuine hope. They're taking action. They're trying. They both mean it. Both believe it's possible. The reader should feel the hope but dread what's coming.
 
 ## Key Story Beats
 - [ ] Simera deciding she has to confront Liz
@@ -19,14 +19,21 @@ Simera can't watch anymore. Despite her own addiction, despite the hypocrisy, sh
 - [ ] The pain and guilt still underneath
 - [ ] Both crying together
 - [ ] Shared understanding of addiction
-- [ ] The decision: we'll both stop
+- [ ] The decision: we'll both stop completely
 - [ ] "Together. We'll help each other"
+- [ ] "We'll find real jobs. We'll survive differently"
 - [ ] "We can do this. We have to"
 - [ ] Genuine promises made
-- [ ] Both meaning it in the moment
+- [ ] Immediate action: searching for work
+- [ ] Both applying to jobs online
+- [ ] Updating resumes together
+- [ ] The activity feeling productive, hopeful
+- [ ] Simera gets an interview within days
+- [ ] Customer service position—legitimate work
+- [ ] Relief and hope
 - [ ] Holding each other
-- [ ] The hope feeling real
-- [ ] End: tentative hope, fragile promise, both believing
+- [ ] "We're really doing this"
+- [ ] End: tangible hope, action being taken, both believing
 
 ## Character Focus
 - **Simera**: Confronting despite hypocrisy, admitting her own addiction, terrified for Liz, desperate to help, making promises
@@ -52,11 +59,14 @@ Raw, emotional, painful honesty. The confrontation difficult but necessary. The 
 - The promises should feel real—they mean them
 - Show their love for each other clearly
 - This is their last chance, their last try
+- The immediate action (job searching) should feel hopeful
+- Show them working together on applications
+- Simera's interview is a tangible sign of progress
 - The hope should feel possible but doomed
 - Reader knows what characters don't—promises in addiction are fragile
-- This sets up the tragic inevitability of Chapter 16-18
+- This makes their attempt at normal life more tragic
 - The contrast with later chapters will be devastating
-- End on hope that readers know won't last
+- End on genuine hope and action that readers know won't last
 
 ---
 
