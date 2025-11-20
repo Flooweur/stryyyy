@@ -1,155 +1,325 @@
-# Chapter 1: The Fall
+# Chapitre 1 : La Chute
 
-The wind knows her name before she does.
+Simera se tient debout sur le rebord, cent-dix étages au-dessus de la capitale. Sa robe blanche, unique barrière entre la fragilité de son corps et l'immensité du monde, claque contre sa peau, s'enroule autour de ses jambes, ondoie au vent comme un drapeau.
 
-Simera stands on the edge where the world ends—one hundred and fourteen stories above a city that breathes like a sleeping beast. The hospital gown clings to her body, thin as prayer, gossamer as last words. White fabric. Bloodless. Clean in a way nothing else is anymore, in a way nothing will ever be again.
+Ses orteils sont contractés, ils agrippent fermement la ligne fine entre la sûreté du béton et l'appel du vide. Une tentative de s'accrocher à la dernière chance qui lui est offerte. Cent-dix étages, elle les a comptés en montant les escaliers, elle savait que chaque palier gravi devrait être redescendu d'une manière ou d'une autre. Et maintenant elle fait face à la ville, qui semble tout aussi vulnérable qu'elle, ses artères exposées à la vue de tous, ses côtes perçant à travers sa chair pour pointer vers le ciel, une peau translucide, orange, fragile.
 
-Her toes curl over the lip of concrete. One hundred and fourteen. She counted them on the way up, each floor a heartbeat, each number a small stone dropped into the dark well of her chest where something vital used to live. The city sprawls below—all arteries and veins, all pulse and hunger. Light bleeds through its streets like luminescence through a dying fish. Buildings rise like ribs caging a heart that beats too slow. Streets wind like intestines digesting the lives fed into them. The beast dreams beneath its own skin, and she is about to wake it.
+Sous son épiderme, une constellation de fièvres lumineuses agite le sommeil de l'animal. Dans l'une d'elles, un homme s'acharne contre une chemise, ailleurs une femme s'agite dans une danse solitaire, tandis qu'un couple se dévore et qu'un vieillard expire son dernier souffle. Mais Simera reste sourde à ces névroses. Tout ce qui compte désormais, c'est l'abîme qui s'étend devant elle, qui semble grandir à chaque instant, et devient de plus en plus irrésistible.
 
-The sky is the color of old bruises, the kind that never quite heal.
+Cent-dix paliers, cent-dix chances de s'arrêter, cent-dix décisions de continuer de monter, en sachant que chacune allait rendre la chute un peu plus mortelle.
 
-She can see everything from here. The way the sodium lights bleed orange into the darkness like old copper in old veins. The way the buildings lean toward each other like drunks, like lovers, like people who have forgotten the difference. Somewhere down there, in one of those thousand lit windows, someone is eating dinner. Someone is fucking. Someone is dying. All of it happening at once, all of it meaningless as breath, as significant as her next heartbeat, which might be her last.
+L'espace d'un instant, le tissu de sa robe cesse de se débattre. Un silence écrasant s'installe. Le temps semble se figer pour laisser une dernière chance à Simera. Mais il n'y a rien à faire, elle était déjà en train de tomber avant même que la chute ne commence.
 
-One hundred and fourteen floors. One hundred and fourteen chances to stop. One hundred and fourteen ways to choose to keep breathing. She didn't take any of them.
+Elle inspire…
 
-The gown lifts in the wind and she thinks of flags, of surrender, of white birds that have forgotten how to fly. Her arms spread. The fabric catches like a lover's hand catching your wrist. For a moment she is all wings, all surrender, all already falling before the fall even begins.
-
-She takes a breath—
-
-And steps into nothing.
+Et franchit le pas.
 
 ---
 
-The first second is pure betrayal. Her body doesn't understand what she's done. It claws for ground that isn't there, screams for safety that never was, reaches back toward a life already lost to gravity. The hospital gown billows up around her face, blinding her, smothering her, and she tears at it with desperate fingers. The fabric rips. The sound of it—that small violence, that intimate tearing—is lost immediately to the wind but she feels it in her palms, in her bones. The way the threads give up. The way surrender sounds when you can taste it on your tongue.
+La première seconde est une trahison. Son corps est toujours dans l'attente de trouver une surface sur laquelle se poser, son estomac remonte violemment. Le vent s'engouffre instantanément dans les plis de sa robe. La soie semble se révolter contre la chute, se transforme en voile, des ailes qui ne lui seront d'aucune utilité.
 
-She pulls the gown over her head and lets it go. The white fabric tumbles upward—or she tumbles down—and for a heartbeat she watches it rise like a ghost, like everything she's leaving behind. Then it's gone, lost to the sky, and she is falling in her underwear, falling in her skin, falling toward the inevitable conclusion of gravity and bone.
+Quatre-vingts-sept, quatre-vingts-cinq. Elle compte pendant que les étages semblent défiler au ralenti. Chacun une fenêtre sur une vie qui auraient pu être la sienne, mais elle est de l'autre côté, condamnée à observer, à s'imaginer à la place de ces gens trop occupés à vivre le moment, ignorants de sa traversée.
 
-One hundred and thirteen floors left. One hundred and twelve. She counts them as they blur past, these lit windows full of lives she'll never touch. In one of them, a woman stands at a stove. In another, a man watches a screen. They don't know she's falling. They don't know the air itself has teeth.
+Malgré tous ses sens lui indiquant le danger, Simera se sent libre, plus libre qu'elle ne l'a jamais été, son corps n'obéissant plus qu'à la gravité, délesté de toute autre contrainte.
 
-The wind is screaming. Or she is. Or the city is. Sound loses meaning when you're moving this fast, when the air becomes solid and then visceral and then cruel. It tears at her hair. Fills her mouth. She gulps it down like drowning, like the wind itself might save her if she can just swallow enough of it, if she can just become it.
+Quatre-vingts-trois, quatre-vingts.
 
-One hundred and ten floors. One hundred and nine.
-
-Her bra comes loose—she didn't mean to but her hands are clawing at everything, trying to hold onto something, even if that something is her own skin. The clasp gives. The fabric peels away. She watches it spiral off into darkness, a small bird with no wings, and then she is bare-chested, falling faster. Less resistance. Less mercy. The air takes what it wants.
-
-This is when the kiss begins.
+C'est alors que le baiser commence.
 
 ---
 
-It starts soft. A brush of something against her lips—not lips but the memory of lips, not touch but the promise of touch, the way longing feels when it first wakes in your chest. The air moves across her mouth and it's gentle, almost questioning, like a first kiss from someone who isn't sure they're allowed. Like being asked a question in a language you've forgotten but your body still speaks. She opens her mouth to it. Opens everything. The wind rushes in, fills her, and she tastes altitude and electricity and the sharp mineral tang of rain that hasn't fallen yet, of blood that hasn't spilled yet.
+Il naît doucement, comme une question murmurée contre sa bouche. Le vent caresse ses lèvres—pas des lèvres mais le souvenir de lèvres, pas un contact mais la promesse d'un contact, cette sensation qui s'éveille dans la poitrine quand le désir prend forme. L'air glisse sur sa bouche avec une douceur presque timide, comme un premier baiser de quelqu'un qui n'est pas sûr d'en avoir le droit. Elle ouvre la bouche. Le vent s'engouffre, l'emplit, et elle goûte l'altitude et l'électricité et ce goût minéral âcre de la pluie qui n'est pas encore tombée, du sang qui n'a pas encore coulé.
 
-One hundred and five. One hundred and four.
+Soixante-dix-huit. Soixante-quinze.
 
-The kiss deepens. The wind presses harder now, more insistent, more needful. Her body arches into it without her permission. Her arms are still spread but they're not wings anymore. They're an offering. They're an acceptance. They're a plea. The air touches every part of her—her neck, her shoulders, the soft undersides of her arms where the skin is thinnest and the veins run closest to the surface. The hollow behind her knees. The small of her back where sweat pools. The curve of her hip. It's everywhere at once and she can't escape it and she doesn't want to and wanting has never felt so much like falling.
+Le baiser s'approfondit. Le vent se fait plus insistant, plus avide. Son corps s'arque vers lui sans sa permission. La robe blanche claque et ondule autour d'elle comme une chose vivante, tantôt l'enveloppant, tantôt se soulevant pour exposer sa peau à la morsure de l'air. Ses bras sont toujours étendus mais ils ne sont plus des ailes. Ils sont une offrande. Une acceptation. Une supplication. L'air touche chaque partie d'elle—son cou, ses épaules, le creux derrière ses genoux. Le tissu de la robe se colle à sa peau puis s'en détache dans un ballet chaotique, révélant et cachant, caressant et griffant.
 
-One hundred and one. One hundred.
+Soixante-douze. Soixante-neuf.
 
-Her underwear is gone—when did that happen?—and now she is entirely naked, entirely free, entirely falling toward an ending she can already feel in her teeth. The wind finds the curve of her spine and traces it like a tongue, slow and deliberate and knowing, and she gasps. The sound is ripped away immediately but she feels it in her throat, that small surrender, that tiny yes, that prayer she didn't know she was saying.
+Le vent trouve les courbes de son corps à travers le tissu fin. La robe épouse sa silhouette, devient une seconde peau qui amplifie chaque sensation au lieu de les atténuer. Le tissu pressé contre elle par la force de la chute crée une friction qui est presque insupportable, presque divine. Elle halète. Le son est arraché immédiatement mais elle le sent dans sa gorge, cette petite reddition, ce minuscule oui, cette prière qu'elle ne savait pas prononcer.
 
-The city rises to meet her and it's beautiful in the way that death is beautiful when you stop fighting it. She can see the cracks in the concrete now. The stains on the buildings like old bloodstains. The graffiti like prayers scrawled by desperate hands. The way everything is broken when you get close enough. The way broken things are the only honest things left. Ninety-seven floors. Ninety-six. The windows are eyes now, watching her fall, witnessing her, and she wonders if they can see what she feels, if they understand that this is what flying looks like from the inside, this is what freedom costs when you can finally afford it.
+La ville se rapproche et c'est beau de la façon dont la mort est belle quand on cesse de la combattre. Elle peut voir maintenant les fissures dans le béton, les taches sur les immeubles comme d'anciennes traces de sang, les graffitis comme des prières griffonnées par des mains désespérées. Tout est brisé quand on s'en approche assez. Les choses brisées sont les seules choses honnêtes qui restent.
 
-The kiss becomes ravenous.
+Soixante-trois. Cinquante-neuf. Cinquante-quatre.
 
-The wind slams into her and it's not gentle anymore. It's needful. It's desperate. It's hunger made manifest, desire made solid, want made flesh. It touches her everywhere—the hollow of her throat where her pulse hammers, the space between her breasts where her heart tries to escape, the soft give of her stomach where fear lives. Her thighs part without her meaning to, without her permission, and the air rushes between them, cold and insistent and utterly merciless and somehow exactly what she needs. She cries out. The sound is devoured before it can be born. The wind takes everything—her voice, her fear, her name.
+Le baiser devient vorace.
 
-Eighty-nine. Eighty-eight. Eighty-seven.
+Le vent s'écrase contre elle et ce n'est plus doux du tout. C'est affamé. C'est désespéré. C'est la faim faite manifeste, le désir fait solide, le besoin fait chair. Il la touche partout—le creux de sa gorge où son pouls martèle, l'espace entre ses seins où son cœur tente de s'échapper, la douceur de son ventre où vit la peur. La robe se plaque contre son corps avec une force qui devrait être douloureuse mais qui est exactement ce dont elle a besoin. Le tissu devient une extension de la caresse du vent, une membrane qui traduit la violence de l'air en quelque chose de presque tendre, presque cruel, les deux à la fois indissociables.
 
-She's falling faster now, fast enough that the air itself becomes a kind of pressure, a kind of presence, a kind of lover that knows exactly how to touch her. It pins her arms back. It forces her legs apart. It holds her in an embrace that's half violence and half worship, and she can't tell the difference anymore. Can't tell where the wind ends and she begins. Can't tell if she's falling or being pulled, if this is death or ecstasy or the moment when they stop being different things.
+Quarante-sept. Quarante-trois. Trente-neuf.
 
-The numbers blur. Seventy-three. Sixty-eight. Sixty-two.
+Elle tombe plus vite maintenant, assez vite pour que l'air lui-même devienne une sorte de présence, une sorte d'amant qui sait exactement comment la toucher. La robe se tord autour de ses cuisses, s'enroule puis se libère, danse avec le vent dans une chorégraphie chaotique. Elle ne peut plus distinguer où le vent se termine et où elle commence. Ne peut plus dire si elle tombe ou si elle est tirée, si c'est la mort ou l'extase ou le moment où ils cessent d'être des choses différentes.
 
-The kiss is everywhere. It's in her hair, tangling it into knots that will never come undone. It's in her ears, screaming declarations she can't understand but feels in her marrow. It's across her back, down her legs, circling her ankles like hands that know exactly where to touch, exactly how much pressure breaks skin. Her body is alive in a way it's never been alive before, in a way it will never be alive again. Every nerve is singing. Every cell is awake and screaming. This is what it means to feel everything at once. This is what it means to be nothing but sensation. This is what it means to finally, finally be free of thought, of memory, of the grinding weight of being human.
+Les chiffres se brouillent. Trente-quatre. Vingt-neuf. Vingt-trois.
 
-Fifty-four. Forty-nine. Forty-three.
+Le baiser est partout. Dans ses cheveux, les emmêlant en nœuds qui ne se déferont jamais. Dans ses oreilles, hurlant des déclarations qu'elle ne comprend pas mais qu'elle ressent jusqu'à la moelle. Le long de son dos, le long de ses jambes, encerclant ses chevilles comme des mains qui savent exactement où toucher. Son corps est vivant d'une façon qu'il n'a jamais été vivant auparavant, d'une façon qu'il ne le sera plus jamais. Chaque nerf chante. Chaque cellule est éveillée et hurle. C'est ce que signifie tout ressentir à la fois. C'est ce que signifie n'être rien d'autre que sensation. C'est ce que signifie être enfin, enfin libre de la pensée, de la mémoire, du poids écrasant d'être humain.
 
-The ground is real now. Not just a promise but a certainty, not just a destination but an appointment she's going to keep. She can see the street, the cars like beetles, the people like ants. In thirty seconds she'll be one of them—spread across the pavement, red and broken and finally still. The thought should terrify her. It does terrify her. But terror and ecstasy have the same face when you're falling fast enough, and the kiss is building to something, rising toward a crescendo she can feel in her bones, in her blood, in the part of her that knows what endings taste like.
+Dix-sept. Quatorze. Onze.
 
-Thirty-two. Twenty-eight. Twenty-three.
+Le sol est réel maintenant. Pas juste une promesse mais une certitude, pas juste une destination mais un rendez-vous qu'elle va honorer. Elle peut voir la rue, les voitures comme des scarabées, les gens comme des fourmis. Dans quelques secondes elle sera l'une d'eux—étalée sur le trottoir, rouge et brisée et enfin immobile. La pensée devrait la terrifier. Elle la terrifie. Mais terreur et extase ont le même visage quand on tombe assez vite, et le baiser monte vers quelque chose, s'élève vers un crescendo qu'elle peut sentir dans ses os, dans son sang, dans cette partie d'elle qui sait quel goût ont les fins.
 
-The wind finds her mouth again and this time it's different. This time it's not gentle and it's not violent. It's just inevitable. It's the ending written in her bones, the conclusion her body has always been falling toward. It rushes down her throat, fills her lungs, and she's breathing it in, gulping it down, trying to hold onto it even as it tears through her like a prayer through a nonbeliever. Her eyes water. Her chest aches. She's never been this full. She's never been this empty. Both things are true at once, and truth has never felt so much like drowning.
+Sept. Cinq. Trois.
 
-Seventeen. Fourteen. Eleven.
+La rue se précipite vers elle et elle peut la voir maintenant—une flaque d'eau, sombre et immobile comme un souffle retenu, exactement là où elle va atterrir. Exactement là où elle va finir. Exactement là où le baiser va se consommer. Chaque partie d'elle est vivante et douloureuse et hurle oui et non et s'il te plaît et plus et arrête et n'arrête jamais et l'air est en elle et autour d'elle et elle est l'air et l'air est elle et elle ne peut plus distinguer où l'un se termine et où l'autre commence.
 
-Her body is tensing now, every muscle going tight, coiling like a spring, preparing for the moment when falling becomes landing, when flying becomes dying, when the kiss reaches its terrible conclusion. The kiss builds and builds and builds. The wind is a lover that knows exactly how to touch her, exactly where to press, exactly when to pull back and when to push forward and when to just hold on and never let go. She's shaking. She's screaming. She's completely lost to it, lost to herself, lost to everything except this moment, this sensation, this perfect terrible beautiful end.
+Deux étages. Un.
 
-Seven. Five. Three.
+Elle voit son reflet dans la flaque—juste le temps d'un battement de cœur, juste l'espace d'une fraction de seconde qui s'étire en éternité—et le visage qui lui renvoie son regard est faux. Les yeux sont plus sombres, presque noirs. Les pommettes plus aiguës, taillant des angles qu'elle n'a jamais vus dans un miroir. La bouche tordue dans une expression qu'elle n'a jamais portée, quelque chose entre l'extase et la terreur et la compréhension. Ce n'est pas son visage. C'est le visage de quelqu'un d'autre. Le visage d'une étrangère. Un visage qui a l'air de savoir quel goût a la mort et qui a hâte d'y goûter à nouveau.
 
-The street rushes up and she can see it now—a puddle of water, dark and still as a held breath, right where she's going to land. Right where she's going to end. Right where the kiss will consummate. Every part of her is alive and aching and screaming yes and no and please and more and stop and never stop and the air is inside her and around her and she is the air and the air is her and she can't tell anymore where one ends and the other begins, can't tell if she's being devoured or if she's the one doing the devouring.
-
-Two floors. One.
-
-She sees her reflection in the puddle—just for a heartbeat, just for a sliver of a second that stretches into eternity—and the face looking back at her is wrong. The eyes are darker, almost black. The cheekbones sharper, cutting angles she's never seen in a mirror. The mouth twisted into an expression she's never worn, something between ecstasy and terror and understanding. It's not her face. It's someone else's face. A stranger's face. A face that looks like it knows what dying tastes like and can't wait to taste it again.
-
-A face that's falling toward water that will shatter on impact, that will break into a thousand glittering pieces, that will scatter like her thoughts, like her name, like everything she used to be before the wind taught her how to—
+Un visage qui tombe vers une eau qui va se briser à l'impact, qui va exploser en mille éclats scintillants, qui va se disperser comme ses pensées, comme son nom, comme tout ce qu'elle était avant que le vent ne lui apprenne comment—
 
 ---
 
-Simera wakes up gasping, drowning, dying.
+Simera se réveille en suffoquant, en se noyant, en mourant.
 
-The bed is soaked with sweat. Her heart is trying to break through her ribs, trying to escape her chest, trying to finish what the fall started. Her hands are clawing at the sheets, tangled in fabric that's too soft, too real, too present, too much like a shroud. For a moment she can't remember where she is. Can't remember who she is. Can't remember her own name or if she ever had one. Can't remember anything except the feeling of falling, the taste of wind like copper like blood like goodbye, the pressure of air against her skin like a kiss that never ended, never will end, never can end.
+Le lit est trempé de sueur. Son cœur tente de briser ses côtes, tente de s'échapper de sa poitrine, tente de finir ce que la chute a commencé. Ses mains griffent les draps, emmêlées dans un tissu qui est trop doux, trop réel, trop présent. Pendant un instant elle ne peut pas se souvenir où elle est. Ne peut pas se souvenir qui elle est. Ne peut pas se souvenir de son propre nom ni si elle en a jamais eu un. Ne peut se souvenir de rien sauf la sensation de tomber, le goût du vent comme du cuivre comme du sang comme un adieu, la pression de l'air contre sa peau comme un baiser qui ne s'est jamais terminé, ne se terminera jamais, ne peut jamais se terminer.
 
-"Jesus, Sim."
+« Putain, Sim. »
 
-The voice pulls her back. Grounds her. She turns her head—too fast, the room spins—and sees Liz sitting beside her on the bed. Liz's dark hair is messy, sleep-tangled. She's wearing an old t-shirt, three sizes too big. In her hands is the device: small, silver, no bigger than a cigarette case. The wire dangles loose, the end still warm from where it was plugged into the jack behind Simera's ear.
+La voix la ramène. L'ancre. Elle tourne la tête—trop vite, la pièce tourne—et voit Liz assise à côté d'elle sur le lit. Les cheveux noirs de Liz sont en désordre, emmêlés par le sommeil. Elle porte un vieux t-shirt, trois tailles trop grand. Dans ses mains se trouve l'appareil : petit, argenté, pas plus gros qu'un étui à cigarettes. Le câble pend, l'extrémité encore chaude de l'endroit où il était branché dans la prise derrière l'oreille de Simera.
 
-"That one must have been intense," Liz says. Her voice is dry, amused, but her eyes are worried. They're always worried these days.
+« Celui-là avait l'air intense, » dit Liz. Sa voix est sèche, amusée, mais ses yeux sont inquiets. Ils sont toujours inquiets ces temps-ci.
 
-Simera reaches up and touches the port behind her ear. The metal jack is still there, embedded in her skull, a small violation that stopped hurting years ago. Her fingers come away slick with the conductive gel they use. Clear. Odorless. It gets everywhere.
+Simera porte la main derrière son oreille et touche le port. La prise métallique est toujours là, enfoncée dans son crâne, une petite violation qui a cessé de faire mal il y a des années. Ses doigts reviennent couverts du gel conducteur qu'ils utilisent. Transparent. Inodore. Il se répand partout.
 
-"Yeah," she manages. Her voice is rough. Scraped raw. "Yeah, it was."
+« Ouais, » réussit-elle à dire. Sa voix est rauque. Râpée. « Ouais, il l'était. »
 
-Liz sets the device on the nightstand, next to the stack of bills they can't pay and the medication they can't afford. The device looks innocent there, nestled among all that failure like a viper in a nest of dead things. Just a small silver box. Just a way to live someone else's life for a little while. Just a way to die someone else's death and wake up still breathing. Just an escape from the grinding reality of being broke and desperate and slowly drowning in a world that doesn't give a shit if you drown, that profits from your drowning, that has learned to monetize even death itself, to make it safe and repeatable and addictive.
+Liz pose l'appareil sur la table de nuit, à côté de la pile de factures qu'elles ne peuvent pas payer et des médicaments qu'elles ne peuvent pas se permettre. L'appareil a l'air innocent là, niché parmi tout cet échec comme une vipère dans un nid de choses mortes. Juste une petite boîte argentée. Juste un moyen de vivre la vie de quelqu'un d'autre pendant un petit moment. Juste un moyen de mourir de la mort de quelqu'un d'autre et de se réveiller encore en train de respirer.
 
-"The falling one again?" Liz asks.
+« Celui de la chute encore ? » demande Liz. Elle ne juge pas. Elle ne juge jamais. C'est l'une des choses que Simera aime chez elle—peut-être la principale. Liz a ses principes, c'est sûr. Elle ne touchera pas aux Mementos elle-même, ne branchera pas ce câble dans son propre crâne. Mais elle ne juge pas Simera pour ça. N'en fait pas un échec moral. L'accepte juste comme une chose de plus qu'elles naviguent ensemble.
 
-Simera nods. She can still feel it—the phantom sensation of wind against her skin, the memory of that last moment before impact. Her body aches in places that weren't even touched. Her mouth is dry. Copper on her tongue. She counts the pills on the nightstand without meaning to: eight. Counts the bills: thirteen. Counts the number of breaths Liz takes before speaking again: four. The numbers calm her. The numbers always calm her.
+Simera hoche la tête. Elle peut encore le sentir—la sensation fantôme du vent contre sa peau, le souvenir de ce dernier moment avant l'impact. Son corps fait mal dans des endroits qui n'ont même pas été touchés. Sa bouche est sèche. Du cuivre sur sa langue.
 
-"You really like those, huh?" Liz says. 
+« Tu aimes vraiment ceux-là, hein ? » dit Liz. Toujours sans jugement dans la voix, juste une observation.
 
-She's not judging. She never judges. That's one of the things Simera loves about her—maybe the main thing. Liz has her principles, sure. She won't touch Mementos herself, won't plug that wire into her own skull. But she doesn't judge Simera for it. Doesn't make it into a moral failing. Just accepts it as one more thing they navigate together, like the bills and the hunger and the slow erosion of hope. Like breathing. Like not breathing.
+« Oui, » dit Simera doucement. Parce que c'est vrai. Elle les aime. Ceux de la chute par-dessus tout. Ce moment de pure reddition, de pure liberté, de pure sensation dépouillée de conséquence. Rien d'autre ne s'en approche. Pas le sexe, pas les drogues, pas aucun des plaisirs bon marché que ce monde prétend pouvoir te sauver. Même pas le toucher de Liz, bien qu'elle ne le dira jamais à voix haute. Juste la chute. Juste le vent. Juste la certitude qu'en quelques secondes tout sera fini.
 
-"I do," Simera says quietly.
+Sauf qu'on ne touche jamais le sol. C'est l'astuce. C'est le beau mensonge. C'est la cruauté. On tombe et on tombe et on tombe et puis on se réveille, en sécurité dans son lit, avec quelqu'un qu'on aime qui vous regarde comme si vous étiez un problème qu'ils essaient de résoudre.
 
-Because it's true. She does love them. The falling ones most of all. That moment of pure surrender, pure freedom, pure sensation stripped of consequence. Nothing else comes close. Not sex, not drugs, not any of the cheap pleasures this world pretends will save you. Not even Liz's touch, though she'll never say that out loud. Just the fall. Just the wind. Just the certain knowledge that in a few seconds it will all be over, that the kiss will reach its conclusion, that you'll finally hit the ground.
+Liz tend la main et écarte les cheveux du visage de Simera. Son toucher est doux. Réel. Rien comme le vent.
 
-Except you never hit the ground. That's the trick. That's the beautiful lie. That's the cruelty of it. You fall and fall and fall and then you wake up, safe in your bed, with someone you love looking at you like you're a problem they're trying to solve, like you're a wound they don't know how to close.
+« Tu trembles, » dit-elle.
 
-Liz reaches out and brushes the hair from Simera's face. Her touch is gentle. Real. Nothing like the wind. "You're shaking," she says.
+« Ça va. »
 
-"I'm okay."
+« Non, ça ne va vraiment pas. »
 
-"You're really not."
+« Je sais. »
 
-"I know."
+Liz soupire et se laisse retomber contre l'oreiller. « Tu sais que tu as crié, non ? J'étais réveillée à te regarder et tu—tu faisais des bruits que je ne t'avais jamais entendue faire. Comme si tu—» Elle s'arrête. « Comme si tu mourrais. Comme si tu aimais mourir. »
 
-Simera closes her eyes. Behind her eyelids she can still see it—that face in the puddle, the reflection that wasn't hers, the face of whoever jumped off that building and recorded their own death so people like her could pay to live it. Dark eyes that have seen the ground rushing up. Sharp cheekbones that have felt wind like a knife. A stranger's face that looks more familiar than her own. She wonders who they are. She wonders if they're still alive. She wonders if they did it more than once, if they're addicted to their own ending. She wonders if it matters. She wonders if anything matters when you've fallen that far and woken up still breathing.
+Le silence s'installe entre elles, lourd et inconfortable. Simera compte les secondes : six, sept, huit. Elle compte toujours. Ne peut pas s'en empêcher. Les chiffres l'apaisent quand rien d'autre ne le peut.
 
-"Sim," Liz says, and there's something in her voice now—a edge, a warning. "You know those things aren't real, right?"
+« Ce n'était pas réel, » dit finalement Simera.
 
-"I know."
+« Je sais que ce n'était pas réel. Mais pour toi, pendant ces quarante-trois minutes, ça l'était. »
 
-"You know they're just recordings. Someone else's memories."
+« Quarante-trois minutes ? »
 
-"I know, Liz."
+« Quarante-trois minutes de ta vie que tu as passées à tomber d'un immeuble. À vivre la mort de quelqu'un d'autre. À payer treize dollars pour ressentir ce que c'est que de mourir sans vraiment mourir. »
 
-"You know that face you're seeing, those sensations you're feeling—they're not yours."
+Liz se redresse, ses jambes croisées sous elle. Elle porte le pantalon de survêtement qu'elle dort, gris et délavé et avec un trou au genou. Ses pieds sont nus. Simera compte les orteils : dix. Compte les doigts sur les mains de Liz : dix. Vingt au total. Les chiffres sont réconfortants.
 
-Simera opens her eyes. Looks at Liz. At her girlfriend, her anchor, the only thing keeping her tethered to this reality that feels less and less real every day. "I know," she says again.
+« Je ne te juge pas, » dit Liz rapidement. « Je veux que tu le saches. Ce que tu fais avec ces trucs, c'est ton affaire. Mais Sim—» Elle hésite. « Tu en achètes beaucoup ces derniers temps. Plus que d'habitude. Et on n'a pas vraiment l'argent pour—»
 
-But even as she says it, she's not sure she believes it. Because when she was falling, it felt real. More real than this bed, more real than Liz's worried eyes, more real than the bills they can't pay or the future they don't have or the love they're trying to keep alive in a world that starves it. It felt like the only true thing in a world made of lies and compromises and slow deaths that never quite finish. It felt like the only time she's ever been fully awake. 
+« Je sais. »
 
-And that terrifies her more than the fall ever did. Because if someone else's death feels more real than her own life, what does that make her? What does that make this? What does that make the woman in the kitchen making coffee, the woman who still believes in principles, who still believes there's a difference between falling and being pushed, between dying and living?
+« Tu sais et tu en achètes quand même. »
 
-She doesn't know. She's not sure she wants to know.
+« Oui. »
 
-Liz sighs and stands up. "I'm making coffee. You want some?"
+Liz se frotte le visage de ses mains. « D'accord. D'accord. Parlons de ça. Vraiment parlons-en. Pas juste en cercles comme on fait toujours. »
 
-"Yeah."
+Simera s'assoit, adossée contre le mur. La pièce est petite—douze pas d'un côté, neuf de l'autre, elle les a comptés mille fois. Un lit au sol parce qu'elles ont vendu le cadre. Une table qui est en réalité une porte posée sur deux classeurs. Deux chaises dépareillées. Une kitchenette qui est juste une plaque chauffante sur un mini-frigo. C'est tout ce qu'elles ont. C'est tout ce qu'elles peuvent se permettre.
 
-"Try not to die while I'm gone, okay?"
+« Qu'est-ce que tu veux que je dise ? » demande Simera.
 
-It's meant to be a joke but it lands wrong. Everything lands wrong these days. Simera watches Liz leave, watches her girlfriend's shoulders slumped under the weight of things they don't talk about, things they used to talk about, back when talking felt like something other than cataloging losses. Then she's alone in the room with the device on the nightstand, calling to her like a voice she can't ignore, like a memory she can't escape, like gravity.
+« Je veux savoir pourquoi. Pourquoi celui-là spécifiquement. Pourquoi sept fois. »
 
-She counts the walls: four. Counts the corners: four. Counts the cracks in the ceiling: twenty-three. Counts the number of breaths before she wants to fall again: she's already lost count. Counts the reasons to stay here, in this room, in this life, in this body that has never felt as alive as it did when it was dying: she can't get past one. Counts the seconds until she reaches for the device again: she's still counting, but the numbers are getting smaller.
+« Tu comptes combien de fois j'achète des Mementos ? »
 
-Outside the window, the city breathes. Inside this room, Simera tries to remember how. Tries to remember why. Tries to remember if there was ever a time when breathing felt like something other than waiting to fall again.
+« Non, je regarde nos relevés bancaires et je vois qu'on dépense quatre-vingt-onze dollars par mois pour que tu puisses tomber d'immeubles. Quatre-vingt-onze dollars qu'on pourrait utiliser pour, je ne sais pas, manger. Ou payer le loyer. Ou acheter mes putains d'antidouleurs dont j'ai vraiment, vraiment besoin. »
+
+La culpabilité frappe Simera comme une gifle physique. Elle compte : huit pilules restantes dans le flacon à côté du lit. Liz en prend une tous les trois jours quand la douleur devient insupportable. Vingt-quatre jours. Moins d'un mois avant qu'elles ne soient épuisées et Liz sera dans une agonie qu'aucune respiration profonde ou rationalisation ne peut toucher.
+
+« Merde, » murmure Simera. « Liz, je suis—»
+
+« Ne t'excuse pas. Je ne veux pas d'excuses. Je veux comprendre. » La voix de Liz se radoucit. « Je te vois, tu sais. Je te vois brancher ce truc et partir. Je te vois revenir et tu es—tu es différente. Pendant une heure après, tu es ailleurs. Même quand tu me regardes, tu ne me vois pas vraiment. Tu vois encore la chute. Tu sens encore le vent. Tu es encore en train de mourir dans la tête de quelqu'un d'autre. »
+
+« Ce n'est pas—»
+
+« Laisse-moi finir. » Liz prend la main de Simera. Ses doigts sont chauds, calleux. Réels. « Je ne dis pas ça pour être cruelle. Je dis ça parce que je suis inquiète. Tu utilises ces trucs de plus en plus. Et à chaque fois que tu reviens, il te faut plus de temps pour vraiment revenir. Pour être toi. Pour être ici avec moi. »
+
+« Je suis ici. »
+
+« Tu es dans cette pièce. Ce n'est pas la même chose. »
+
+Simera ne dit rien. Parce que Liz a raison. Liz a toujours raison sur ces choses. Après un Memento—surtout celui de la chute, celui qu'elle a acheté sept fois maintenant—il lui faut du temps pour se réancrer. Pour se souvenir que sa vie, aussi misérable soit-elle, est réelle. Que cette pièce est réelle. Que Liz est réelle. Que le vent était juste des données, juste les impulsions électriques de quelqu'un d'autre téléchargées dans son cerveau et rejouées comme un film, comme un souvenir qui ne lui appartient même pas.
+
+« Dis-moi pourquoi celui-là, » dit Liz doucement. « Aide-moi à comprendre. »
+
+Simera regarde le plafond. Neuf taches d'eau. Vingt-six fissures. Elle les connaît toutes intimement.
+
+« Parce que quand je tombe, » dit-elle lentement, « je ne pense à rien d'autre. Je ne m'inquiète pas du loyer. Je ne m'inquiète pas qu'on n'ait pas assez à manger. Je ne m'inquiète pas que tu aies mal et que je ne puisse rien y faire. Je ne compte pas combien d'argent il nous reste ou combien de jours avant que le proprio nous expulse. Je tombe juste. Et dans cette chute—dans ces quarante-trois minutes—je suis libre. Complètement libre. La seule fois où je me sens libre. »
+
+« Tu te sens libre en mourant. »
+
+« Je me sens libre en ne pensant pas. En n'étant rien d'autre que sensation. En n'étant pas—» Elle s'arrête.
+
+« En n'étant pas toi, » termine Liz. « Tu te sens libre en n'étant pas toi. En étant la personne qui a enregistré ça. La personne qui a vraiment sauté. »
+
+« Ouais. »
+
+Liz est silencieuse pendant un long moment. Puis : « Est-ce que c'est quelque chose que tu envisagerais ? De le faire toi-même ? »
+
+« Sauter d'un immeuble ? »
+
+« Ouais. »
+
+« Non. » La réponse vient rapidement. Trop rapidement peut-être. « Non, je—non. »
+
+« Tu en es sûre ? »
+
+« Je—» Simera s'arrête. Est-elle sûre ? A-t-elle déjà pensé à ça ? Debout au bord de cette plateforme de métro, juste un instant, se demandant à quoi ça ressemblerait de faire un pas en avant ? Sur le toit de ce parking l'an dernier, regardant en bas, comptant les étages : sept, pas assez pour garantir la mort mais assez pour garantir la douleur ? « Je ne sais pas. »
+
+« Merde. » Liz presse sa main contre sa bouche. « Merde, Sim. Si tu—si c'est où tu en es, on doit parler de ça. Vraiment en parler. Pas juste—»
+
+« Je ne vais pas me tuer, » dit Simera. Elle en est presque sûre. « Mais je comprends l'attrait. Je comprends pourquoi quelqu'un le ferait. Je comprends pourquoi la personne qui a enregistré ce Memento l'a fait. »
+
+« Ils ne sont probablement pas morts, » dit Liz. « La plupart des créateurs de chute utilisent des harnais. Des systèmes de sécurité. Ils enregistrent juste les premiers instants puis ils arrêtent avant l'impact. C'est de la performance. »
+
+« Je sais. Mais parfois—» Simera hésite. « Parfois ça ne semble pas être de la performance. Parfois ça semble trop réel. Trop authentique. Comme si la personne qui l'a enregistré voulait vraiment mourir. Voulait vraiment finir. Et ils ont juste décidé de l'enregistrer d'abord pour que d'autres puissent le ressentir aussi. »
+
+Le silence retombe entre elles, plus lourd cette fois. Plus effrayant.
+
+« Je vais faire du café, » dit finalement Liz. Elle se lève lentement, une main pressée contre son estomac. La douleur est là, toujours là, lurquant sous tout ce qu'elle fait. « Tu en veux ? »
+
+« Oui. S'il te plaît. »
+
+Liz se dirige vers la kitchenette. Trois pas. Simera les compte. Regarde Liz remplir la bouilloire, mesurer le café instantané dans deux tasses ébréchées. Les mouvements sont familiers, rituels. Ils ont fait ça mille fois. Des milliers de fois. Ce matin après Memento, boire du mauvais café, prétendre que tout va bien même si rien ne va bien et n'a été bien depuis des mois, peut-être des années.
+
+« On pourrait déménager, » dit Simera soudainement.
+
+Liz se retourne. « Où ? »
+
+« Je ne sais pas. Quelque part moins cher. Quelque part avec—je ne sais pas. Plus d'opportunités d'emploi peut-être. »
+
+« Sim, on peut à peine se permettre cet appartement. Comment est-ce qu'on pourrait se permettre de déménager ? Les dépôts, les camions, l'essence—»
+
+« D'accord, d'accord. Oublie. C'était juste une idée. »
+
+« C'était une distraction, » dit Liz doucement. « Tu ne veux pas déménager. Tu veux juste changer de sujet. Tu veux arrêter de parler de pourquoi tu achètes des Mementos qu'on ne peut pas se permettre. »
+
+« Ce n'est pas—» Mais Simera s'arrête parce que oui, c'est exactement ça. « Tu as raison. Désolée. »
+
+La bouilloire siffle. Liz verse l'eau dans les tasses, remue. L'odeur du café remplit le petit appartement—pas bon café, café instantané qui goûte surtout le carton, mais c'est chaud et c'est de la caféine et c'est quelque chose. Elle rapporte les tasses, en tend une à Simera, s'assoit au bord du lit.
+
+« Écoute, » dit Liz après un moment. « Je comprends le besoin de s'échapper. Je comprends vouloir être quelqu'un d'autre pendant un moment. Je comprends pourquoi ces trucs sont attrayants. »
+
+« Mais ? »
+
+« Mais je m'inquiète que ça devienne plus qu'un échappatoire. Je m'inquiète que ça devienne—je ne sais pas. Une dépendance. Un besoin. Quelque chose que tu ne peux pas contrôler. »
+
+« Je peux contrôler—»
+
+« Sept fois en trois mois, Sim. Le même Memento. Le même moyen de mourir. Tu l'achètes encore et encore comme si une fois ne suffisait pas. Comme si tu cherchais quelque chose dedans que tu ne trouves jamais. »
+
+Simera boit son café. Brûlant, amer, mauvais. Compte les gorgées : quatre avant que la tasse soit à moitié vide. Huit pour la finir complètement. Les chiffres sont apaisants même quand la conversation ne l'est pas.
+
+« Peut-être que c'est ça, » dit-elle. « Peut-être que je cherche quelque chose. »
+
+« Quoi ? »
+
+« Je ne sais pas. Une raison. Un but. Une sensation qui—qui me fait sentir que je suis encore vivante. »
+
+« Tu es vivante, » dit Liz fermement. « Tu es ici. Avec moi. Dans cette pièce de merde avec ce café de merde et ces factures de merde et tout le reste de cette situation de merde. Mais tu es vivante. Tu respires. Ton cœur bat. Ça compte. »
+
+« Est-ce que ça compte vraiment ? Respirer n'est pas la même chose que vivre. Survivre n'est pas la même chose que—»
+
+« Ne fais pas ça. » La voix de Liz est tranchante maintenant. « Ne commence pas avec ce nihiliste pseudo-philosophique conneries. Tu es vivante. C'est plus que beaucoup de gens peuvent dire. C'est plus que les gens dans tes Mementos peuvent dire. Ils sont morts. Ou ils ont failli mourir. Et tu paies pour ressentir ce que c'est. Mais au moins tu te réveilles après. Au moins tu as ça. »
+
+Elle a raison. Encore. Liz a toujours raison et c'est frustrant et réconfortant en même temps.
+
+« Je vais essayer, » dit Simera. « D'acheter moins. De—de rester plus présente. »
+
+« Tu n'as pas à arrêter complètement. Je ne demande pas ça. J'en utilise pas moi-même mais je ne te juge pas de le faire. Je demande juste—modération. Conscience. Ne pas dépenser quatre-vingt-onze dollars par mois pendant qu'on doit choisir entre manger et payer l'électricité. »
+
+« D'accord. »
+
+« D'accord ? »
+
+« Ouais. D'accord. » Simera pose sa tasse. Tend la main à travers le lit, trouve la main de Liz, la serre. « Je vais faire mieux. »
+
+« On va faire mieux, » corrige Liz. « Ensemble. Comme on fait tout. » Elle sourit—ce sourire de travers qui a fait tomber Simera amoureuse d'elle au départ, qui la fait toujours tomber amoureuse même maintenant quand les choses sont difficiles, quand l'amour ressemble plus à de la survie qu'à de la romance. « On va s'en sortir, tu sais. D'une manière ou d'une autre. On s'en sort toujours. »
+
+« Tu penses vraiment ça ? »
+
+« Je dois le penser. L'alternative est trop déprimante. » Liz prend une gorgée de son café, grimace. « Bon sang, c'est vraiment dégueulasse. »
+
+« Ouais. »
+
+« Pourquoi est-ce qu'on continue à acheter celui-là ? »
+
+« Parce que c'est le moins cher. »
+
+« Ah. Ouais. Ça a du sens. » Liz pose sa tasse sur le sol, se rallonge sur le lit. « Viens ici. »
+
+Simera se glisse à côté d'elle. Liz l'entoure de ses bras, la tient serrée. Le corps de Liz est chaud, mince, réel. Son cœur bat contre la joue de Simera—soixante-douze battements par minute, elle compte automatiquement, ne peut pas s'arrêter de compter. Le rythme est régulier, réconfortant. Preuve de vie. Preuve qu'elles sont toutes les deux encore ici, encore ensemble, encore en train de se battre même si le combat est épuisant, même si certains jours il semble qu'elles perdent plus qu'elles ne gagnent.
+
+« Je t'aime, » murmure Simera.
+
+« Je t'aime aussi. » Liz embrasse le sommet de sa tête. « Même quand tu es une idiote qui achète des enregistrements de la mort. Même quand tu trembles dans ton sommeil parce que tu tombes dans tes rêves. Même quand tu me regardes mais que tu ne me vois pas vraiment parce que tu penses encore au vent et à la chute et à ce putain de visage dans la flaque que tu n'arrêtes pas de mentionner. Je t'aime quand même. »
+
+« Le visage dans la flaque. » Simera ferme les yeux. Elle peut encore le voir—ces yeux sombres, ces pommettes aiguës, cette expression qui était terreur et extase et quelque chose d'autre, quelque chose qu'elle ne peut pas nommer. « Tu penses qu'ils sont vraiment morts ? La personne qui a enregistré ça ? »
+
+« Je ne sais pas. Peut-être. Peut-être pas. Est-ce que ça change quelque chose ? »
+
+« Je suppose que non. » Mais ça change quelque chose. Quelque part dans sa tête, ça change quelque chose de penser que la personne dont elle a vécu la mort est réellement morte. Que leurs derniers moments sont maintenant un produit que des gens comme elle consomment. Que la mort est devenue divertissement. Que quelqu'un a décidé que leur fin valait la peine d'être monétisée.
+
+Ou peut-être qu'ils n'ont pas décidé. Peut-être que quelqu'un d'autre a enregistré leur mort—a témoigné de leur saut et l'a capturé et l'a vendu. Peut-être que tout le Memento est une violation, une exploitation, un vol de quelqu'un de leurs derniers moments pour le profit.
+
+Simera ne sait pas ce qui est pire.
+
+Elles restent allongées ensemble en silence pendant dix-sept minutes. Simera compte chaque une. Compte les respirations de Liz : cent trois au total. Compte ses propres battements de cœur : mille deux cent vingt-quatre. Les chiffres la maintiennent ancrée, la maintiennent présente, la maintiennent ici au lieu de retomber dans la chute, dans le vent, dans ce dernier moment avant l'impact quand tout devient clair et simple et vrai.
+
+« J'ai une entrevue cet après-midi, » dit finalement Simera.
+
+Liz se redresse sur ses coudes. « Vraiment ? Pourquoi tu ne l'as pas mentionné ? »
+
+« Je ne voulais pas—je ne sais pas. Jinx. En faire une chose. Au cas où ça ne mène nulle part. »
+
+« Pour quoi c'est ? »
+
+« Service client. À distance. Salaire minimum. »
+
+« C'est quelque chose. »
+
+« Ouais. Si je l'obtiens. »
+
+« Tu vas l'obtenir, » dit Liz avec confiance. « Tu es douée à ce genre de choses. Parler aux gens. Résoudre des problèmes. »
+
+Simera ne se sent pas douée à quoi que ce soit ces temps-ci. Elle se sent épuisée et creuse et comme si elle était juste en train de jouer un rôle qu'elle ne comprend même plus. Mais elle hoche la tête parce que c'est ce qu'on fait. On hoche la tête et on fait semblant et on continue et on espère qu'un jour le semblant devient réel, que la performance devient identité, que l'on se réveille et on se sent réellement comme la personne qu'on prétend être.
+
+« À quelle heure ? » demande Liz.
+
+« Quatorze heures. »
+
+« Tu as le temps de te préparer alors. Prendre une douche. Répéter tes réponses. Toute cette merde d'entrevue. »
+
+« Ouais. »
+
+« Veux-tu que je t'aide à répéter ? »
+
+« Non, ça va. Merci quand même. »
+
+Liz hoche la tête, se rallonge. Elles restent ensemble, accrochées à ce moment de calme avant que la journée ne commence vraiment, avant que Simera ne doive se préparer et prétendre être une personne employable, avant que Liz ne doive faire face à sa douleur et la gérer encore une journée, avant qu'elles ne doivent toutes les deux affronter la réalité de leur situation : presque fauchées, presque expulsées, presque à court d'options.
+
+Presque.
+
+Mais pas encore. Pas aujourd'hui. Aujourd'hui elles ont encore ce moment. Cette pièce. Cette connexion. Ce petit noyau d'espoir qui refuse de mourir complètement même quand tout le reste est en train de mourir autour d'eux.
+
+Simera compte : quatre murs, douze sur neuf pas, dix-sept factures, huit pilules, deux tasses de café, une petite amie, un Memento qu'elle ne rachètera pas (probablement), une entrevue à quatorze heures, une chance de tout changer, une chance d'échouer encore, une vie qui continue malgré tout, malgré les chutes et la peur et le désir d'être n'importe qui d'autre, n'importe où ailleurs.
+
+Une vie qui continue à compter.
+
+---
