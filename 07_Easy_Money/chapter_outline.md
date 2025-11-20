@@ -1,7 +1,7 @@
 # Chapter 7: Easy Money
 
 ## Chapter Summary
-The first payment brings relief. Bills get paid. Simera and Liz can breathe for the first time in a while. Maybe they celebrate, go out, buy something small but meaningful. The temporary reprieve feels like salvation. Simera creates a few more Mementos—still relatively tame by market standards. The money flows. It seems manageable, even sustainable. A false sense of control. The comfort is seductive. Simera is good at this. The positive feedback and earnings validate her choice. But there are hints: the content that sells best is more extreme; comments from users wanting more; the algorithm pushing her toward harder content.
+The falling Memento's success brings relief and validation. Bills get paid. Simera and Liz can breathe. Maybe they celebrate something small. The temporary reprieve feels like salvation. Simera creates a few more Mementos—some walking tours, another edge-standing recording, building her catalog. The money continues to flow. It seems manageable, even sustainable. A false sense of control. The comfort is seductive. Simera is good at this. The positive feedback and earnings validate her choice. Liz watches with mixed feelings—relief at the financial security but growing concern at what Simera is becoming. But there are hints of pressure: the content that sells best is more extreme; comments from users wanting more; the algorithm pushing her toward harder content. And Simera notices something disturbing: she's thinking about creating again not just for money but because she wants to feel that intensity again.
 
 ## Key Story Beats
 - [ ] Financial relief - bills paid, breathing room
